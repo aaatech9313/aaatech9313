@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aaatech9313
+- 👀 I’m interested in learning about cybersecurity concepts...
+- 🌱 I’m currently learning Web based attacks.
+- 😄 Pronouns: her/She
+- ⚡ Fun fact: I am noob, still 
